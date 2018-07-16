@@ -2,15 +2,15 @@
 
 ## Can you describe the place where you live ?
 
-Well, actually, since I was born, I have been living in the west north part of city, which is far away from the down town. In the past 18 years, it was still a village, but with the development of urbanization, it changed a lot now. I espicially enjoy the place where I live now, because it's a perfect place to catch bus , subway or trains. Besides, I also live with my parents, you know , cause I have a family of three. I mean this kind of place may be quiet and slow for their life. You know that I hope they can never grow old, but they can't. In fact, they are almost 50 years old, that's way we prefer to live in that place, well that's my point.
+Well, actually, since I was born, I have been living in the west north part of city, which is far away from the down town. In the past 18 years, it was still a village, but with the development of urbanization, it changed a lot now. I especially enjoy the place where I live now, because it's a perfect place to catch bus , subway or trains. Besides, I also live with my parents, you know , cause I have a family of three. I mean this kind of place may be quiet and slow for their life. You know that I hope they can never grow old, but they can't. In fact, they are almost 50 years old, that's way we prefer to live in that place, well that's my point.
 
 ## Is there anything you don’t like about the place where you live? 
 
-Well，the most thing that I dislike is the decoration of my apartment. As I've mentioned before, I've been living in this place since I was born. So, you can imagine, the decoration of the apartment is really old fashioned and some furniture is broken. I hope that I can move to new  house in next few years or make a complete over haull for the apartment at least.
+Well, the most thing that I dislike is the decoration of my apartment. As I've mentioned before, I've been living in this place since I was born. So, you can imagine, the decoration of the apartment is really old fashioned and some furniture is broken. I hope that I can move to new house in next few years or make a complete over haull for the apartment at least.
 
 ## What’s your favorite room in your home?
 
-Well, there is no doubt that most farvorite room is bed room. Because it's not only a place for me to sleep but also to relax.Every time that I return from school with a tired body,  I wil go to bedroom for sleeping. Actually,  I set my computer in my bedroom, so I will relax myself by playing games in the bedroom. 
+Well, there is no doubt that most farvorite room is bed room. Because it's not only a place for me to sleep but also to relax. Every time that I return from school with a tired body,  I will go to bedroom for sleeping. Actually,  I set my computer in my bedroom, so I will relax myself by playing games in the bedroom. 
 
 ## Please describe the room you live in.
 
@@ -30,51 +30,51 @@ Well, frankly speaking, it's really a difficult question for me. As for myself, 
 
 ## Are the transport facilities to your home good
 
-Absoultely, the public transport is so convenient that you can go home by different vechiles. Because of the sharing bikes, subway, bus and taxi, I can go anywhere in hangzhou without walking. As for my home, there is a subway station in front of our apartment. I only need to walk for 10mins or ride bike in 5mins. And there are 3 bus stop around our district and the nearest one is even beside the main gate. So you can imagine now how convenient the public transport is.
+Absoultely, the public transport is so convenient that you can go home by different vechiles. Because of the sharing bikes, subway, bus and taxi, I can go anywhere in Hangzhou without walking. As for my home, there is a subway station in front of our apartment. I only need to walk for 10mins or ride bike in 5mins. And there are 3 bus stop around our district and the nearest one is even beside the main gate. So you can imagine now how convenient the public transport is.
 
 ## What do you like about your hometown?
 
-emm, My hometown is the city where I live, Hangzhou. Hangzhou is famous for its beautiful landscape, local speciality, people and culture. As for lanscape,  there are well-known westlake, leifeng tower, and north high peak. There is also an romantic story about leiphone tower. A snake girl fell in love with a human, but a monk named fahai put the girl under the tower. At last the girl and the boy fight with the monk and they get together.
-As for the local speciality, I like the longjing tea, which has a indescriable smell but enjoyable. At last, the life in hangzhou is become a fast-paced lifestyle  gradually, like that in bj or sh, but I enjoy it.
+Emm, My hometown is the city where I live, Hangzhou. Hangzhou is famous for its beautiful landscape, local speciality, people and culture. As for lanscape, there are well-known West Lake, Leifeng Tower, and North high peak. There is also an romantic story about Leifeng Tower. A snake girl fell in love with a human, but a monk named Fahai put the girl under the tower. At last the girl and the boy fight with the monk and they get together.
+As for the local speciality, I like the Longjing tea, which has a indescriable smell but enjoyable. At last, the life in Hangzhou is become a fast-paced lifestyle gradually, like that in Beijing or Shanghai, but I enjoy it.
 
 ## What do you think needs to change in your home town?
 
-Well, my home town is harmonious, modern and beautiful, but there are still something need to change.First, traffic jam of Hanghzou is the most serious in the whole country. Although subway and sharing bikes have alleviated alot, but not quite enough.
+Well, my home town is harmonious, modern and beautiful, but there are still something need to change. First, traffic jam of Hanghzou is the most serious in the whole country. Although subway and sharing bikes have alleviated alot, but not quite enough.
 Second, some old building in the downtown district need to be repaired compeletly or pulled down. These old building are always the hidden danger and may influence the security of the people living there.
 
 ## What places in your hometown do you go to in your spare time?
 
-emm,  in fact I'm a foodie, espically enjoying the roast and Japanese noodles. So I usually go to the BBQ resturant or Japanese resturant with my friends. Althogh the food there is really delicious, prices are also very high. Sometime, we  choose some local resturant because the prices there are very cheap. Besides eating, we also need to relax ourself, karaoke is a common choice for me. Singing is a direct way for me to release my pressure.
+Emm, in fact I'm a foodie, espically enjoying the roast and Japanese noodles. So I usually go to the BBQ resturant or Japanese resturant with my friends. Although the food there is really delicious, prices are also very high. Sometimes, we choose some local resturant because the prices there are very cheap. Besides eating, we also need to relax ourself, karaoke is a common choice for me. Singing is a direct way for me to release my pressure.
 
 ## Have there been any changes in your hometown. 
 
-well I witnessed the changes that happend in the part where I live. I have been living in the south west part of Hangzhou since I was born. When I was a 4 years old,  there were still many wheat fields. You could even saw the flowers beside the road. But they were all gone now and replaced by high building , wide road, and shopping centre. Urbanization bring us convinence but also take away the original nature view from us.
+Well I witnessed the changes that happend in the part where I live. I have been living in the south west part of Hangzhou since I was born. When I was a 4 years old,  there were still many wheat fields. You could even saw the flowers beside the road. But they were all gone now and replaced by high building , wide road, and shopping centre. Urbanization bring us convinence but also take away the original nature view from us.
 
 ## What's the most interesting part of it? 
 
-the most interesting part of the city , I think , is the longxiang bridge. This area is the most crowded in Hangzhou. It's at the right side of the westlake, and surrounded by a lot of shopping mall and resturants. Frankly speaking, this the best place for young.  You can buy clothes, shoes and something else in the shopping mall. What's more, the only one Apple store in zhejiang is also loacted in this area. As for resturant, there are many kinds of food, including local food, japanese food, american food and so on. Besides, you can also walk to the westlake to enjoy the beautfil landscape, espically the music fountain.
+The most interesting part of the city , I think , is the Longxiang Bridge. This area is the most crowded in Hangzhou. It's at the right side of the West Lake, and surrounded by a lot of shopping malls and resturants. Frankly speaking, this the best place for young. You can buy clothes, shoes or anything else in the shopping mall. What's more, the only Apple Store in Zhejiang is also located in this area. As for resturant, there are many kinds of food, including local food, Japanese food, American food and so on. Besides, you can also walk to the West Lake to enjoy the beautiful landscape, especially the music fountain.
 
 ## what are the differ between big cities and small.
 
-emm, as for life style, it's usally a fast-paced life in big cities, because every one is busy with their work. But in samll cities, life seems much more leisured.
-as for work, working in the big cities means much more oppotunity, you can gain much more offer and salary, which is much higher than that in small cities. 
+Emm, as for life style, it's usally a fast-paced life in big cities, because every one is busy with their work. But in small cities, life seems much more leisured.
+As for work, working in the big cities means much more oppotunity, you can gain much more offer and salary, which is much higher than that in small cities. 
 
 # Part II
 
 ## Decribe a childhood friend you remember well.
 
-well,  I remember a lot of childhood friend, but here I'm going to talk about the most familiar childhood friend for me called FXD. He was a transfer student and the first time that I met him was in 2003 when I was a pupil. Becuase our ways home were similiar, we often went home together and talked a alot on the way. Usually, we shared about the interesting thing that we experience in school,  said some jokes about teachers or the pretty girls. As time went on, both of us became much more familiar with others, then, we became good friends.   Now, I can still remeber the time that we went home and went to school. But this is not the main reason why I remember him well. In fact,  our relationship is delicate. we are not only just friends, but also competiters. We would compete with each other in many fields, ranging from acdemic subjects to sports activities. Neither of us would admit that he was loser. It has been long time since I saw him last time, and I knew that he went to USA for graduate.And as a friend, I do hope he can achieve something in his filed.
+Well, I remember a lot of childhood friend, but here I'm going to talk about the most familiar childhood friend for me called FXD. He was a transfer student and the first time that I met him was in 2003 when I was a pupil. Becuase our ways home were similiar, we often went home together and talked a alot on the way. Usually, we shared about the interesting thing that we experience in school, said some jokes about teachers or the pretty girls. As time went on, both of us became much more familiar with others, then, we became good friends. Now, I can still remeber the time that we went home and went to school. But this is not the main reason why I remember him well. In fact, our relationship is delicate. we are not only just friends, but also competiters. We would compete with each other in many fields, ranging from acdemic subjects to sports activities. Neither of us would admit that he was loser. It has been long time since I saw him last time, and I knew that he went to USA for graduate. And as a friend, I do hope he can achieve something in his field.
 
 ## Describe a talkative person you know
 
-well there are not so many talkative people around me in my life. Maybe it's because I'm the most talkative person in my friend circle
-you might have noticed that most programmer are quiet, and concentrate on coding all the time. I'm not only shows my outgoing personality but also don't bother listen and share my mindset to others in my life.And I'm such a chatterbox that you even don't need anything for entertainment when I'm aournd. Trust me.
-I' m fond of so many regions, such as technology, music, game, dance, instrument, history and so on.  I can use the easiest word to make you understand the princple of technology, and I can tell you the story in so much detail that you feel you have actually seen the movie. So chatting with me is enjoyable and you can learn a lot of new ideas. But sometimes, this talkative nature put me in a lot of trouble. I can still remember that I've been punished in class for talking too much when I was a pupil. Although I've been punished for so many times, this characteristic is still not changed.
-maybe you have a doubt why I can talk so much. On one hand, I have sufficient knowledge in my mind. On the other hand, I believe I can bring much happiness to others. From the chatting, they are usually very cheerful. That's why I'm so talkative.
+Well there are not so many talkative people around me in my life. Maybe it's because I'm the most talkative person in my friend circle
+You might have noticed that most programmer are quiet, and concentrate on coding all the time. I'm not only shows my outgoing personality but also don't bother listen and share my mindset to others in my life.And I'm such a chatterbox that you even don't need anything for entertainment when I'm aournd. Trust me.
+I' m fond of so many regions, such as technology, music, game, dance, instrument, history and so on. I can use the easiest word to make you understand the princple of technology, and I can tell you the story in so much detail that you feel you have actually seen the movie. So chatting with me is enjoyable and you can learn a lot of new ideas. But sometimes, this talkative nature put me in a lot of trouble. I can still remember that I've been punished in class for talking too much when I was a pupil. Although I've been punished for so many times, this characteristic is still not changed.
+Maybe you have a doubt why I can talk so much. On one hand, I have sufficient knowledge in my mind. On the other hand, I believe I can bring much happiness to others. From the chatting, they are usually very cheerful. That's why I'm so talkative.
 
 ## Describe a building you like
 
-The build that I'm going to talk about is the Leifengta, which is called leifeng pagoda in English. It's a traditional Chinese tower located in Hangzhou. The tower once fell down in 1924, and was rebuilt in 2002 at the same place. 
-the first time I went there was probably 10 years ago when I was a kid, and I was too young to remember details of that experience. So, I really want to visit there again If I have chance. 
-This pagoda is different with other towers in China. It has it own unique legend in it, and this tower looks so pretty in evening glow. And the scenery even was choosen as the ten charms of WestLake.
-why I'm so fascinated by this building? well I feel that the most important reason is that the mysterious legened that tells that the snake white who loves a human named xuxain was put under the pagoada by fahai. This drives me curious and I know that is a mythology. What's more, it's also an antique building that helps enhance my understanding of the ancient history in China.
+The building that I'm going to talk about is the Leifeng Tower, which is called Leifeng Pagoda in English. It's a traditional Chinese tower located in Hangzhou. The tower once fell down in 1924, and was rebuilt in 2002 at the same place. 
+The first time I went there was probably 10 years ago when I was a kid, and I was too young to remember details of that experience. So, I really want to visit there again If I have chance. 
+This pagoda is different with other towers in China. It has it own unique legend in it, and this tower looks so pretty in evening glow. And the scenery even was choosen as the ten charms of the West Lake.
+Why I'm so fascinated by this building? Well I feel that the most important reason is that the mysterious legend that tells that the snake white who loves a human named Xuxian was put under the pagoada by Fahai. This drives me curious and I know that is a mythology. What's more, it's also an antique building that helps enhance my understanding of the ancient history in China.
